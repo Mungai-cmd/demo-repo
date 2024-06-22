@@ -1,1 +1,1 @@
-This file is for educational purposes. If any errors found kindly return the envelop to the authority.
+This file is for educational purposes. If any errors found kindly return the envelop to the administration.
